@@ -1,1 +1,1 @@
-LALALALALLALA
+Prova di risoluzione della issue n.3
